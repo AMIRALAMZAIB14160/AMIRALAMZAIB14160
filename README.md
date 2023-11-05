@@ -1,5 +1,5 @@
  - 👋 Hi, I’m @AMIRALAMZAIB14160
-- 👀 I’m interested in web and mobile app developing..
+- 👀 I’m interested in programming..
 - 🌱 I’m currently learning web and mobile app devele
 - 💞️ I’m looking to collaborate on ...
 - 📫 feel free to contact me on insta and facebook
